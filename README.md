@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Billy Lusenga I work as an Intern (IT Support Technician)
+- 👋 Hi, I’m Billy Lusenga I work as an IT Support Technician Currently
 - 👀 I’m interested in technology and gaming 
 - I completed software development Diploma at Tshwane University 🎓 of technology ⚙ 
 - 💞️ I’m looking for a mentor to help gain experience in software development 
